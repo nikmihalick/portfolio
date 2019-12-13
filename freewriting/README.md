@@ -1,0 +1,1 @@
+This folder is for publishing some free-writing. Much of this writing is a brain dump of things floating in my head. Some ideas will be good, others bad. The point is to get them down. I'll take the good ideas in my day to day, and may occasionally (rarely) turn into blog posts.
